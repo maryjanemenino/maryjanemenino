@@ -10,4 +10,3 @@ Meu nome é Maria Luiza
 
 mah25052005kk@gmail.com
 
-[descrição do GIF] (link GIF do Tenor)
